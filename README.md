@@ -32,7 +32,7 @@ I combine 10+ years of language expertise with growing technical skills to creat
 ---
 
 ## 🌐 Translation & Localization Portfolio
-📌 Smartcat Portfolio: *[Insert your link]*  
+📌 Smartcat Portfolio: https://ea.smartcat.com/marketplace/user/belinda-martina 
 - 200+ translations  
 - 50+ subtitled videos  
 - 100+ hours transcribed  
