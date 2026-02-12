@@ -40,6 +40,6 @@ Most developers build; most writers explain. **I do both.** My unique background
 ---
 
 ### 📫 Connect With Me
-[LinkedIn](www.linkedin.com/in/belinda-martina-7a6939176) • [Smartcat](https://www.smartcat.com/marketplace/user/belinda-martina) • [Email](mailto:justcallmeby@gmail.com)
+[LinkedIn](www.linkedin.com/in/belinda-martina-7a6939176) • [Smartcat](https://www.smartcat.com/marketplace/user/belinda-martina) • [Email](mailto:belindamartina977@gmail.com)
 
 *"Mastering the language of machines and the nuances of human speech."*
